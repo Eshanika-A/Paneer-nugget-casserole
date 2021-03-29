@@ -5,7 +5,6 @@
 Serves: 3 people
 Preparation time: 10 minutes
 Cooking time: 20 minutes
-Author: The Food Root
 
 Ingredients
 
